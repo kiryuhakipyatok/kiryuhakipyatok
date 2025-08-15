@@ -1,1 +1,1 @@
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text](![Alt Text](https://tenor.com/ru/view/luffy-gordo-luffy-gordinho-gif-25125796))
